@@ -1,5 +1,6 @@
 ### Hi there 👋
 sou estudante do Jk e amo batata.
+julia.andradedos.santos@escola.pr.gov.br
 <!--
 **julia-joestar/julia-joestar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
