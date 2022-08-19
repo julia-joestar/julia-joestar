@@ -1,6 +1,7 @@
 ### Hi there 👋
 sou estudante do Jk e amo batata.
 julia.andradedos.santos@escola.pr.gov.br
+![cachorro fofo](https://www.portaldodog.com.br/cachorros/curiosidades/um-dos-cachorros-fofos-e-bonitos-que-voce-ja-viu/)
 <!--
 **julia-joestar/julia-joestar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
