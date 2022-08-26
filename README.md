@@ -1,5 +1,5 @@
 ### oiiiiii👋
-eu me chmao Julia,(SEM ACENTO)
+eu me chmao Julia, (SEM ACENTO)
 sou estudante do Jk e amo batata.
 apenas tentando evoluir positivamente :)
 julia.andradedos.santos@escola.pr.gov.br
