@@ -1,6 +1,7 @@
 ### oiiiiii👋
 eu me chmao Julia,(SEM ACENTO)
 sou estudante do Jk e amo batata.
+apenas tentando evoluir positivamente :)
 julia.andradedos.santos@escola.pr.gov.br
 ![cachorro fofo](https://www.portaldodog.com.br/cachorros/curiosidades/um-dos-cachorros-fofos-e-bonitos-que-voce-ja-viu/)
 <!--
